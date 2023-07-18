@@ -5,9 +5,9 @@
 
 - 🌱 I’m currently learning **java script**
 
-- 👯 I’m looking to collaborate on **small game projects**
+- 👯 I’m interested to collaborate on some **small video game projects**
 
-- 🤝 I’m looking for help with **experience with in the It sector**
+- 🤝 I’m currently looking for some **experience with in the It sector**
 
 - 📫 How to reach me **horvathmatyas2001@gmail.com**
 
