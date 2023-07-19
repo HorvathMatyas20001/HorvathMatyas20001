@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **horvathmatyas2001@gmail.com**
 
+- 🎮 My itch.io account https://matyogatyo.itch.io/
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
